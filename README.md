@@ -1,2 +1,2 @@
 # devops
-learn new devops model
+learn new tech knowleage and 
